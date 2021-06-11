@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @sneha5597
 - 👀 I’m interested in art
 - 🌱 I’m currently doing realism 
-- 📫 How to reach me on Instagram @artist.thk 
+- 📫 How to reach me - on Instagram @artist.thk 
